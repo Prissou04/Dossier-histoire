@@ -1,1 +1,1 @@
-mmmmh, j'adore les manga qui mettent en scène des hommes qui s'aiment
+mmmmh, j'adore les mangas qui mettent en scène des hommes qui s'aiment
