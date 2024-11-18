@@ -1,1 +1,3 @@
 mmmmh, j'adore les mangas qui mettent en scène des hommes qui s'aiment
+Je m'appelle Capitaine Yaoi
+Je suis accro aux...
